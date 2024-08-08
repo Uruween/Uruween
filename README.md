@@ -5,7 +5,7 @@ Hi! Nice to meet ya!<br> I'm <b>Uruween.</b> I'm interested in videogames, how t
 <img src="https://i.imgur.com/kXLtU2g.gif" /><br>
 
 <img src="http://sl.glitter-graphics.net/pub/1824/1824589tsujsgnifk.gif"/>You can found me everywhere as: <b>@uruween♡<b><br>
-<img src="http://sl.glitter-graphics.net/pub/438/438969azkmwb42oa.gif"/> Graphic Designer with an emphasis on animatio.n<br/>
+<img src="http://sl.glitter-graphics.net/pub/438/438969azkmwb42oa.gif"/> Graphic Designer with an emphasis on animation.<br/>
 <img src="http://sl.glitter-graphics.net/pub/1073/1073020lz9hw5tluj.gif"/> Videogame development student.<br>
 <img src="http://sl.glitter-graphics.net/pub/122/122842r9l2jjtjaf.gif"/> Currently learning C#, Unity and Blender.<br>
 <img src="http://sl.glitter-graphics.net/pub/1009/1009254cq7evun01h.gif"/> I love horror games and cute-pink rpg games.<br>
