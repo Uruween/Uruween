@@ -4,12 +4,12 @@
 Hi! Nice to meet ya!<br> I'm <b>Uruween.</b> I'm interested in videogames, how they are made and how to create them.<br><br> 
 <img src="https://i.imgur.com/kXLtU2g.gif" /><br>
 
-<img src="http://sl.glitter-graphics.net/pub/1824/1824589tsujsgnifk.gif"/>You can found me everywhere as: <b>@uruween♡<b><br>
+<img src="http://sl.glitter-graphics.net/pub/1824/1824589tsujsgnifk.gif"/>I love learning new skills and things<br>
 <img src="http://sl.glitter-graphics.net/pub/438/438969azkmwb42oa.gif"/> Graphic Designer with an emphasis on animation.<br/>
 <img src="http://sl.glitter-graphics.net/pub/1073/1073020lz9hw5tluj.gif"/> Videogame development student.<br>
 <img src="http://sl.glitter-graphics.net/pub/122/122842r9l2jjtjaf.gif"/> Currently learning C#, Unity and Blender.<br>
 <img src="http://sl.glitter-graphics.net/pub/1009/1009254cq7evun01h.gif"/> I love horror games and cute-pink rpg games.<br>
-<img border="0" data-original-height="20" data-original-width="20" height="20" src="https://imgur.com/h4TWPtP.gif" width="20" />☆ ヾ(・◇・)ノ☆ミ</div><div><br /></div>
+<img border="0" data-original-height="20" data-original-width="20" height="20" src="https://imgur.com/h4TWPtP.gif" width="20" /> Life is a RPG, and I thrive on side quests ☆ ヾ(・◇・)ノ☆ミ</div><div><br /></div>
 <img src="https://i.imgur.com/9N73kJD.gif">
 <!---
 Uruween/Uruween is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
