@@ -1,5 +1,5 @@
-
 <img src="https://i.imgur.com/rA36hcT.gif">
+
 ︶꒦꒷🍓HEMLO🍓꒷꒦︶<br>
 Hi! Nice to meet ya!<br> I'm <b>Uruween.</b> I'm interested in videogames, how they are made and how to create them.<br><br> 
 <img src="https://i.imgur.com/kXLtU2g.gif" /><br>
@@ -11,6 +11,8 @@ Hi! Nice to meet ya!<br> I'm <b>Uruween.</b> I'm interested in videogames, how t
 <img src="http://sl.glitter-graphics.net/pub/1009/1009254cq7evun01h.gif"/> I love horror games and cute-pink rpg games.<br>
 <img border="0" data-original-height="20" data-original-width="20" height="20" src="https://imgur.com/h4TWPtP.gif" width="20" /> Life is a RPG, and I thrive on side quests ☆ ヾ(・◇・)ノ☆ミ</div><div><br /></div>
 <img src="https://i.imgur.com/9N73kJD.gif">
+
+https://uru-ween.straw.page/
 <!---
 Uruween/Uruween is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
